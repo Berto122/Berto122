@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning ensino medio
 - 💞️ I’m looking to collaborate on nada por enquanto
 - 📫 How to reach me ,na minha escola, mais prefiro q vc nao me procure
-- 😄 Pronouns: normal pfv nao entre no meu perfil se seu pronomes for elu ou elx
 - ⚡ Fun fact: so viciado em jogos
 
 <!---
