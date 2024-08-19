@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ensino medio
 - 💞️ I’m looking to collaborate on nada por enquanto
 - 📫 How to reach me ,na minha escola, mais prefiro q vc nao me procure
-- ⚡ Fun fact: so viciado em jogos
+- ⚡ Fun fact: sou viciado em jogos
 
 <!---
 Berto122/Berto122 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
